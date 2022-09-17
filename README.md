@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aprizl
 - 👀 I’m interested in learning English
 - 🌱 I’m currently majoring English 
-- 😄 I’m looking to seeking friends
+- 😄 I’m looking forward to seeking friends
 - 📫 How to reach me: just message!
 
 <!---
